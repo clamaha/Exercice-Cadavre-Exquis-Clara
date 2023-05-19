@@ -6,3 +6,7 @@ Trois
 quatre
 cinq
 six
+
+
+
+quarte, quarte, quarte, setup, un, neuf
