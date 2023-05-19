@@ -76,3 +76,39 @@ Libérée
 Me voilà
 Libérée, délivrée
 Délivrée
+Moraya
+Princesse de l'ombre
+Où t'en vas-tu lorsque vient le jour
+Ma mère m'avait dit
+"Ne la suis pas, elle porte malheur"
+Moraya
+Princesse de la nuit
+Viens-tu d'un rêve ou de ma folie
+Deux oiseaux qui dansent
+Ce sont tes mains gantées de noir
+Toi qui ne sais pas pleurer
+Laisse-moi t'aimer
+Moraya
+Fleur de la nuit
+Moraya
+Qu'as-tu fait de ma vie
+Je suis fou
+De toi Moraya
+Moraya
+Princesse d'un monde
+Où les soleils sont faits de néant
+Et tu coules dans mes veines
+Un feu d'enfer qui me brûle le sang
+Toi qui ne sais pas pleurer
+Laisse-moi t'aimer
+Moraya
+Fleur de la nuit
+Moraya
+Qu'as-tu fait de ma vie
+Je suis fou
+Moraya
+Fleur de la nuit
+Moraya
+Qu'as-tu fait de ma vie
+
+
