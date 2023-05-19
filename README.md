@@ -18,3 +18,5 @@ trois rois
 quatre sait se battre
 cinq je sais pas 
 six je m'arrête la
+
+sept, huit, neuf
