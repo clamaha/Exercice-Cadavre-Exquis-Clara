@@ -10,3 +10,11 @@ six
 
 
 quarte, quarte, quarte, setup, un, neuf
+telle est la chanson d'aujourd'hui,
+un pain   
+deux bleus
+trois rois
+
+quatre sait se battre
+cinq je sais pas 
+six je m'arrête la
