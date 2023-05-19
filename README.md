@@ -8,10 +8,10 @@ cinq
 six
 
 telle est la chanson d'aujourd'hui,
-un pain 
+un pain   
 deux bleus
 trois rois
 
-quatres sait se battre
+quatre sait se battre
 cinq je sais pas 
 six je mù'arrête la
