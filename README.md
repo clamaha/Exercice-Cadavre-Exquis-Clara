@@ -76,3 +76,6 @@ Libérée
 Me voilà
 Libérée, délivrée
 Délivrée
+
+La Reine des Neiges - Libérée, délivrée Disney
+Chanson d'Anaïs Delva
